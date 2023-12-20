@@ -1,5 +1,5 @@
 # ssLinks官网地址
-ssLinks最新官网地址：[ssLinks官网地址](https://c.jichangzhu.com/goto/sslinks/)
+最新官网地址：[ssLinks官网](https://c.jichangzhu.com/goto/sslinks/)
 
 ## ssLinks怎么样？
 
